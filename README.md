@@ -1,1 +1,1 @@
-This is my failed bid for the EU MSCA 2024 research grant. This showcases my skills in compliance with complex regulatory bodies, project planning, budgeting and more. This bid resulted in a recommendation of funding for other funding bodies, also attached.
+This is my failed bid for the EU MSCA 2024 research grant. This showcases my skills in compliance with complex regulatory bodies, project planning, budgeting and more. This bid resulted in a recommendation of funding for other funding bodies, the 'ERC seal of excellence' also attached.
